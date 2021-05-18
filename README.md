@@ -1,1 +1,0 @@
-# yusuke1225marth.github.io
